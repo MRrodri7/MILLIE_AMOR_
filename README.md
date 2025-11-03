@@ -26,7 +26,7 @@ Hay demaciadas cosas en este mundo pero siempre me recuerdan a ti, veo cosas bon
 
 en verdad me encanta todo de ti
 <!-- TEXTO PERSONALIZADO ABAJO -->
-Amo tu carita, tus ojitos, tus labios, tu cabello, tu forma de ser, tu humor, tus gustos musicales, estoy muy otgulloso de ser tu novio amo todo de ti
+Amo tu carita, tus ojitos, tus labios, tu cabello, tu forma de ser, tu humor, tus gustos musicales, estoy muy orgulloso de ser tu novio amo todo de ti
 te amo tal cual mi niña para mi tu no tienes defectos, eres tu la ideal, eres perfecta, nunca cambies amor :3 
  TE AMOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO❤️
 <!-- FIN TEXTO PERSONALIZADO ABAJO -->
